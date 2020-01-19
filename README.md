@@ -1,6 +1,6 @@
 #                  <center>  <span style="color:rgb(255,0,0)"> I’m Born in Exile </span> </center>
 
-### The craving
+### The yearning
 I don’t remember when I learned this fact, but the revelation jolted me from within. The fact that we Kashmiri Pandits are not the native people of Jammu, rather we belong to a place called Kashmir. 
 
 The revelation ignited a fire in me, a deep craving to know about the place and understand the puzzle of Kashmir. I started to search for my roots, on the internet, in newspapers, through elders in the family and the biased history books. I tried hard to fathom the complex politics and conflicts of the valley, why we Kashmir Pandits were driven out of our homeland and why *Kashmiriyat* was allowed to die. 
