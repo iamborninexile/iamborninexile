@@ -3,7 +3,7 @@
 ### The yearning
 I don’t remember when I learned this fact, but the revelation jolted me from within. The fact that we Kashmiri Pandits are not the native people of Jammu, rather we belong to a place called Kashmir. 
 
-The revelation ignited a fire in me, a deep craving to know about the place and understand the puzzle of Kashmir. I started to search for my roots, on the internet, in newspapers, through elders in the family and the biased history books. I tried hard to fathom the complex politics and conflicts of the valley, why we Kashmir Pandits were driven out of our homeland and why *Kashmiriyat* was allowed to die. 
+The revelation ignited a deep craving to know about the place and understand the puzzle of Kashmir. I started to search for my roots, on the internet, in newspapers, through elders in the family and the biased history books. I tried hard to fathom the complex politics and conflicts of the valley, why we Kashmir Pandits were driven out of our homeland and why *Kashmiriyat* was allowed to die. 
 
 Ironically, in all these endeavors, there was an absence of the essential element- Kashmir, which was a distant dream because of the continued terrorist activities and hesitation of my parents to visit the place after the exile. 
 
