@@ -20,7 +20,7 @@ The first-time encounter with Kashmir left a deep indelible impact on me, which 
 
 I’m still trying to fathom my motherland, but it has been a slow process because of the sporadic visits to the place and because life engages you in the struggles of daily existence. However, I have not let the hope go; I endeavor daily to get a feel of Kashmir outside Kashmir, whether it is by speaking Kashmiri, having the food, discussing the Valley or just reading about it because deep down, there is a ray of hope in me regarding our return to Kashmir. We may have suffered in the past two decades but the future is bright and the valley is waiting for us. 
 
-#### <span style="color:rgb(255,0,0)"> I may have born in exile but I won’t die in it </span>
+#### <span style="color:rgb(255,0,0)"> I may have been born in exile but I won’t die in it </span>
 
 Vikesh  
 [@vikesh_koul](https://twitter.com/vikesh_koul)
