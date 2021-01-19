@@ -29,4 +29,6 @@ I'm still trying to fathom my motherland, but it has been a slow process because
 Vikesh  
 [@vikesh_koul](https://twitter.com/vikesh_koul)
 
-*I had written it years back, today (19th Jan, '20) on the 30-year memory of KP exodus,  I feel people should know our story. In the cacophony of harsh noises, I don't want our pain to get lost.*
+*I had written this article years back, today (19th Jan, ‘20), on the 30-year memory of KP exodus.*  
+
+*People should know our story. In the cacophony of harsh noises, I don’t want the sound of our pain to get lost.*
